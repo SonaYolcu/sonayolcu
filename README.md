@@ -6,6 +6,7 @@ I am Data Analyst
 
 * 🌍  I'm based in Russia
 * ✉️  You can contact me at [sonayolcuyeva@gmail.com](mailto:sonayolcuyeva@gmail.com)
+*  https://t.me/sona_yolcu
 
 ### Skills
 
