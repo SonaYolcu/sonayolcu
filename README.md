@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 I am Data Analyst
 -----------------
 
-* 🌍  I'm based in Russia
+* 🌍  I'm based in Azerbaijan
 * ✉️  You can contact me at [sonayolcuyeva@gmail.com](mailto:sonayolcuyeva@gmail.com)
 *  https://t.me/sona_yolcu
 
